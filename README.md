@@ -10,5 +10,5 @@ Você pode entrar em contato comigo 📫
 
 ironildo.vieira@escola.pr.gov.br
 
-![](https://media.tenor.com/323Ri2uOwCAAAAAd/gojo-satoru.gif)
+![](https://tenor.com/view/gojo-satoru-gif-20540014)
 
